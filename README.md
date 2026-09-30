@@ -1,4 +1,8 @@
-## Hi there 👋
+##  ㅤㅤ ㅤㅤhi losers hahab hsbbnasnbhnjahahahahhaha joke i love you all
+
+<p align="center">
+<img width="632" height="" alt="eddededeedde" src="https://github.com/user-attachments/assets/c3f90a25-791d-456f-9717-6ff83de35f59" />
+</p>
 
 <!--
 **toromiheartz2/toromiheartz2** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
