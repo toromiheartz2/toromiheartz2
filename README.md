@@ -16,7 +16,7 @@
 <br><br><br>
 
 <p align="center">
-  <em><a href="https://en.pronouns.page/@gaburgerSnail">prns</a></em>
+  <em><a href="https://en.pronouns.page/@gaburgerSnail">PRONOUNS PAGE!!!!!</a></em>
 </p>
 
 <br><br><br>
