@@ -5,5 +5,5 @@
 
 <p align="center"  
 
-phone battery 58
-  </p>
+im didy guy i like cool things
+</p>
