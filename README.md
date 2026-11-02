@@ -1,6 +1,6 @@
 ## 
 
-hi im 25 years old and i hate gaburgersnail
+hi i hate gaburgersnail
 
 
 
