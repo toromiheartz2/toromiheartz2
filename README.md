@@ -1,7 +1,6 @@
 ## 
 
-hi gaburgersnial i got something to say i hate You so much quit the internet nobpody likes you and you Know it ok Yor friends hate you okay youre so insfuferable okay and annoyuing ok and youre weak and stupid okay and dumb okay your health doesnt matter okay thank you okay ok
-
+hi im 25 years old and i hate gaburgersnail
 
 
 
