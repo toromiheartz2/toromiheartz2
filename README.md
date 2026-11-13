@@ -1,9 +1,4 @@
 ## 
-
-hi i hate gaburgersnail
-
-
-
-<img width="594" height="571" alt="Screenshot 2026-11-12 21 53 42" src="https://github.com/user-attachments/assets/6145b640-8636-41f3-985c-28e45c2c8d22" />
+<img width="760" height="321" alt="Screenshot 2026-11-13 16 10 07" src="https://github.com/user-attachments/assets/b6fb678a-fc91-4d60-8811-4bbc5a64dfc2" /> 
 
 
